@@ -1,0 +1,3 @@
+# QR Absen
+
+Rencananya biar orang pada nggak tukeran kuman selama corona, jadi absennya pake QR, nggak pake sidik jari krn jari kotor, habis eek dan pipis atau korek upil terus lupa cuci tangan... hiii...
